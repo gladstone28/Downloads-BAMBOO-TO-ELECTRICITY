@@ -17,3 +17,5 @@ https://www.youtube.com/watch?v=RYhysze9UxU&t=548s
 [Use of Bamboo Pellets-This video produced in 2023 but even more urgent now in 2026- there are drawbacks but crisis getting worse](./https://www.youtube.com/watch?v=KjIgVaGujYw)
 
 [Bamboo Farming से Carbon Credits: Complete Business Model Step by Step](https://www.youtube.com/watch?v=bNIafzHT_Go)
+
+[Bamboo Farming, Carbon Credits & Ethanol Production | Agritalk by Abhinav Roy (Part 1)](https://www.youtube.com/watch?v=DurN2eppsF4)
