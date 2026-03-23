@@ -20,4 +20,7 @@ https://www.youtube.com/watch?v=RYhysze9UxU&t=548s
 
 [Bamboo Farming, Carbon Credits & Ethanol Production | Agritalk by Abhinav Roy (Part 1)](https://www.youtube.com/watch?v=DurN2eppsF4)
 
+[Indias National bmmboo Mision](https://www.youtube.com/shorts/D2LrSOwNU8Q)
+
+
 ![](./SCAN-OF-COVER-OF-BOOK.jpg)
